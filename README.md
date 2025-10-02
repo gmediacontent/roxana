@@ -1,1 +1,2 @@
-# roxana
+# Roxana
+Imaginez que vous êtes soudainement aspiré à l’intérieur de votre roman favori… Ça doit être formidable ! À moins que vous ne vous retrouviez dans le corps de Roxana Agriche, la fille de l’antagoniste principal. Car pour ne rien arranger, ce maudit père a kidnappé Cassis Pedelian, le frère de l’héroïne. Mais vous qui connaissez l’histoire, vous savez que cet acte condamne toute la famille Agriche, vous comprise, à une fin certaine. Une seule échappatoire s’offre alors à vous : sauver Cassis Pedelian !
